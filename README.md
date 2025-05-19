@@ -5,7 +5,7 @@
 <br>
 hello! ^.^ i'm 16yo & nonbinary
 <br>
-i'm socially inept, so this will affect how i communicate. sorry
+i'm socially inept, so this will affect how i communicate. i'm sorry
 <br>
 <br>
 DNI: proship & tcc.
