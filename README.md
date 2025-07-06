@@ -4,7 +4,7 @@
 <p align="center">
 hello! ^.^ i'm 16yo & nonbinary
 <br>
-i struggle with communicating and socializing, sorry ;;
+i struggle with communicating and socializing sometimes, sorry ;;
 <br>
 <br>
 DNI: proship & tcc.
