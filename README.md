@@ -9,7 +9,7 @@ i struggle with communicating and socializing sometimes, sorry ;;
 <br>
 interests...
 <br>
-deltarune/undertale, super mario, kirby, splatoon, pokémon, 
+deltarune/undertale, super mario, kirby, splatoon, pokémon, omori
 <br>
 earthbound/the mother series, the binding of isaac, homestuck, south park
 <br>
