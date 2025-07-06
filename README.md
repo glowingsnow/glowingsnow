@@ -7,7 +7,7 @@ hello! ^.^ i'm 16yo & nonbinary
 i struggle with communicating and socializing sometimes, sorry ;;
 <br>
 <br>
-some of my interests:
+interests...
 <br>
 deltarune/undertale, super mario, kirby, splatoon, pokémon, 
 <br>
