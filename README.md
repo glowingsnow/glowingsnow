@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/7dz8wr.png" width="300" height="300" border="10"/>
+<img src="https://files.catbox.moe/hjjorr.gif" width="300" height="300" border="10"/>
 </p>
 <p align="center">
 hello! ^.^ i'm 16yo & nonbinary
