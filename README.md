@@ -7,7 +7,12 @@ hello! ^.^ i'm 16yo & nonbinary
 i struggle with communicating and socializing sometimes, sorry ;;
 <br>
 <br>
-DNI: proship & tcc.
+some of my interests:
 <br>
-
+deltarune/undertale, super mario, kirby, splatoon, pokemon, 
+<br>
+earthbound/the mother series, the binding of isaac, homestuck, south park
+<br>
+<br>
+dni: proship & tcc.
 </p>
