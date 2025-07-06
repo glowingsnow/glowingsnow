@@ -9,5 +9,5 @@ i struggle with communicating and socializing, sorry ;;
 <br>
 DNI: proship & tcc.
 <br>
-also please don't bmf me if you're under 14, interactions are okay!
+also please don't bmf if you're under 14
 </p>
