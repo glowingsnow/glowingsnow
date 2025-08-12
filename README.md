@@ -1,18 +1,16 @@
 <p align="center">
-<img src="https://files.catbox.moe/btedmf.png" width="700" height="200" border="10"/>
+<img src="https://files.catbox.moe/gor1s2.png" width="700" height="300" border="10"/>
+<img src="https://files.catbox.moe/s8a9kg.png" width="700" height="300" border="10"/>
 </p>
 <p align="center">
-hello! ^.^ i'm 16yo & nonbinary
+hello!!! ^.^ i'm 16yo & nonbinary + gnc
 <br>
-i struggle with communicating and socializing sometimes, sorry ;;
-<br>
-<br>
-interests...
-<br>
-deltarune/undertale, super mario, kirby, splatoon, pokémon, omori
-<br>
-earthbound/the mother series, the binding of isaac, homestuck, south park
+i struggle with communicating and socializing sometimes, sorry 
 <br>
 <br>
-dni: proship & tcc.
+interactions are encouraged! they make me happy ♡
+<br>
+c+h is always okay if we've interacted ^__^
+<br>
+<br>
 </p>
