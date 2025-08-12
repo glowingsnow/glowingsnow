@@ -1,6 +1,5 @@
 <p align="center">
 <img src="https://files.catbox.moe/gor1s2.png" width="700" height="300" border="10"/>
-<img src="https://files.catbox.moe/s8a9kg.png" width="700" height="300" border="10"/>
 </p>
 <p align="center">
 hello!!! ^.^ i'm 16yo & nonbinary + gnc
@@ -13,4 +12,5 @@ interactions are encouraged! they make me happy ♡
 c+h is always okay if we've interacted ^__^
 <br>
 <br>
+<img src="https://files.catbox.moe/tbnvow.png" width="100" height="100" border="10"/>
 </p>
