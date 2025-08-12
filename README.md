@@ -6,8 +6,8 @@ hello!!! ^.^ i'm 16yo & nonbinary + gnc
 <br>
 i struggle with communicating and socializing sometimes, sorry 
 <br>
-<img src="https://files.catbox.moe/tbnvow.png" width="100" height="100" border="10"/>   
-<br> 
+<img src="https://files.catbox.moe/tmwf0p.gif" width="25" height="50" border="10"/>   
+<br>
 interactions are encouraged! they make me happy ♡
 <br>
 c+h is always okay if we've interacted ^__^
