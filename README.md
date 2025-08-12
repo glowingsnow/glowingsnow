@@ -11,6 +11,5 @@ interactions are encouraged! they make me happy ♡
 <br>
 c+h is always okay if we've interacted ^__^
 <br>
-<br>
 <img src="https://files.catbox.moe/tbnvow.png" width="100" height="100" border="10"/>
 </p>
