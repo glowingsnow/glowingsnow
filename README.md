@@ -6,6 +6,7 @@ hello!!! ^.^ i'm 16yo & nonbinary + gnc
 <br>
 i struggle with communicating and socializing sometimes, sorry 
 <br>
+<img src="https://files.catbox.moe/1nxoqg.png" width="300" height="600" border="10"/>  
 <br>
 interactions are encouraged! they make me happy ♡
 <br>
