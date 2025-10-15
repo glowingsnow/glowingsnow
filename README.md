@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/ccrup2.gif" width="100" height="200" border="10"/>     
 </p>
 <p align="center">  
-hello!!! ^.^ i'm 16yo & nonbinary + gnc
+hello!!! ^.^ i'm 17yo & agender
 <br>
 i struggle with communicating and socializing sometimes, sorry 
 <br>
