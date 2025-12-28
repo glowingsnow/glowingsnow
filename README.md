@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/ccrup2.gif" width="100" height="200" border="10"/>     
+<img src="https://files.catbox.moe/mblxmp.png" width="600" height="800" border="10"/>     
 </p>
 <p align="center">  
 hello! ^___^ i'm 17yo & nonbinary 🍭✨ i like cute things and talking about interests!!
