@@ -5,7 +5,7 @@
 <img src="https://files.catbox.moe/w8nps9.png" width="600" height="800" border="10"/>     
 </p>
 <p align="center">  
-<img src="https://files.catbox.moe/xddkjn.gif"/> hello! ^___^ i'm 17yo & nonbinary <img src="https://files.catbox.moe/wlmum7.gif"/> i like cute things and talking about interests!!
+<img src="https://files.catbox.moe/xddkjn.gif"/> hello! ^___^ i'm 17yo + taken ‹𝟹 <img src="https://files.catbox.moe/wlmum7.gif"/> i like cute things and talking about interests!!
 <br>
 i am a system, but please don't feel inclined to give me nor my alters any sort of special treatment :,^)
 <br>
