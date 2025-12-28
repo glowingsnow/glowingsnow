@@ -7,7 +7,7 @@
 <p align="center">  
 <img src="https://files.catbox.moe/xddkjn.gif"/> hello! ^___^ i'm 17yo + taken ‹𝟹 <img src="https://files.catbox.moe/wlmum7.gif"/> i like cute things and talking about interests!!
 <br>
-i'm a system, but please continue to treat me and my headmates as you would anyone else... :,^) 
+i'm part of a system, but please continue to treat me and my headmates as you would anyone else... :,^) 
 <br>
 <img src="https://dividers.crd.co/assets/images/gallery03/aeaa788d.gif?v=05d33f91" width="300" height="600" border="10"/>  
 <br>
