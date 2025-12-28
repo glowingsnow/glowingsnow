@@ -4,7 +4,7 @@
 <p align="center">  
 hello!!! ^___^ i'm 17yo & nonbinary
 <br>
-i am a system, but you do not have to give me nor my headmates any sort of special treatment... ^_^;; 
+i am a system, but you do not have to give me nor my alters any sort of special treatment... ^_^;; 
 <br>
 <img src="https://files.catbox.moe/1nxoqg.png" width="300" height="600" border="10"/>  
 <br>
