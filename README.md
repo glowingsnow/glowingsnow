@@ -5,7 +5,7 @@
 <img src="https://files.catbox.moe/w8nps9.png" width="600" height="800" border="10"/>     
 </p>
 <p align="center">  
-<img src="https://files.catbox.moe/xddkjn.gif"/> hello! ^___^ i'm <b>17</b>yo + <u>taken</u> ‹𝟹 <img src="https://files.catbox.moe/wlmum7.gif"/> i like cute things and talking about interests!!
+<img src="https://files.catbox.moe/xddkjn.gif"/> hello! ^___^ i'm 17yo + taken ‹𝟹 <img src="https://files.catbox.moe/wlmum7.gif"/> i like cute things and talking about interests!!
 <br>
 i'm a system, but please don't feel like you have to give my alters special treatment :,^) treat us as you would anyone else!
 <br>
