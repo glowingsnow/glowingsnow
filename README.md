@@ -5,7 +5,7 @@
 <img src="https://files.catbox.moe/w8nps9.png" width="600" height="800" border="10"/>     
 </p>
 <p align="center">  
-<img src="https://files.catbox.moe/xddkjn.gif"/> hello! i go by rals ^___^ i'm 17yo + taken ‹𝟹 <img src="https://files.catbox.moe/wlmum7.gif"/> i like cute things and talking about interests!!
+<img src="https://files.catbox.moe/xddkjn.gif"/> hello! i go by rals ^___^ i'm 17yo <img src="https://files.catbox.moe/wlmum7.gif"/> i like cute things and talking about interests!!
 <br>
 i'm part of a system, but please continue to treat me and my headmates as you would anyone else :,^) 
 <br>
